@@ -1,5 +1,5 @@
-## Hi there 👋
-
+My ebuhosu ryohaji 👍 headcanon😍(HAPPEY): I think 💬🤔 ryoichi likes to rub 💆‍♂️hajimes🤓butt 🍑 because he secretly🔒🤫 had it tattooed 😂 without hajime knowing 😵 also because 🫴 ryoichi 🚬 has matching ball 🍒 tattoo with hajimes 🤓 butt 🍑
+![balltattoo](https://hifudoyaoi.neocities.org/IMG_20250605_003711_155.jpg)
 <!--
 **ryohaji/ryohaji** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
